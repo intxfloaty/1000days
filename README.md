@@ -1,0 +1,1 @@
+Commit yourself for 1000 days and change your life.
